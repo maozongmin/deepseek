@@ -1,1 +1,1 @@
-全网乱传的Deepseek从入门到精通的PDF版本
+Deepseek从入门到精通的PDF版本
